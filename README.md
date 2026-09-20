@@ -16,7 +16,7 @@ I enjoy building functional, user-oriented applications and continuously improvi
 - 🏢 Experienced in developing ERP Odoo modules
 - 🌐 Experienced in developing web-based applications
 - 📍 Based in Indonesia
-- 📫 Email: **aryaandramirza@gmail.com**
+- 📫 Email: **aryaandramrz@gmail.com**
 - 🔗 LinkedIn: [linkedin.com/in/arya-andra-mirza-4a35792a5](https://www.linkedin.com/in/arya-andra-mirza-4a35792a5/)
 
 ---
