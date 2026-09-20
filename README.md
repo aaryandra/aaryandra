@@ -183,7 +183,7 @@ I'm continuously improving my skills in:
 
 Feel free to connect with me or explore my projects.
 
-📧 **Email:** aryaandramirza@gmail.com
+📧 **Email:** aryaandramrz@gmail.com
 
 🔗 **LinkedIn:**  
 [linkedin.com/in/arya-andra-mirza-4a35792a5](https://www.linkedin.com/in/arya-andra-mirza-4a35792a5/)
